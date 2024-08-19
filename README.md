@@ -1,1 +1,1 @@
-![tuberia_mariano](https://github.com/Deploy-peace/Deploy-peace/blob/aa87d26b7ae4390d3d8d38c23534c797c08f6e48/pngwing.com.png)
+![tuberia_mariano](https://github.com/Deploy-peace/Deploy-peace/blob/6b98f419fa2b82702de2f3b0a00e13c4b977cf13/mariano.png)
